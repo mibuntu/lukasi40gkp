@@ -1,1 +1,0 @@
-# lukasi40gkp
